@@ -34,7 +34,9 @@ NO RED SKITTLES.
 
 
 
+//coachella failed
 
+//Mazatlan and eclipse success
 
 
 
